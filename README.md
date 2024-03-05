@@ -29,4 +29,4 @@ AtliQ Mart is a retail giant with over 50 supermarkets in the southern region of
 * Link to presentation: https://www.canva.com/design/DAF-bb9zEuw/pGFzaRqaTh_7ckq0KwKR9Q/view?utm_content=DAF-bb9zEuw&utm_campaign=designshare&utm_medium=link&utm_source=editor
 
 ## LinkedIn 
-https://www.linkedin.com/posts/activity-7098209431959605248-laug?utm_source=share&utm_medium=member_desktop
+https://www.linkedin.com/posts/activity-7170818911335108609-XpO5?utm_source=share&utm_medium=member_desktop
